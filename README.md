@@ -3,7 +3,7 @@
 
 ## ⚡ Welcome ⚡
 
-💻  i do product things at [Almanac](almanac.io).  
+💻  i do product things at [Almanac](https://almanac.io).  
 ⛺  likely walking a dog in Seattle, WA  
 🐥  [@acrokatto](https://twitter.com/acrokatto)    
 😄  pronouns: she/her  
