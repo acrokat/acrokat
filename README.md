@@ -7,5 +7,4 @@
 ⛺  likely walking a dog in Seattle, WA  
 🐥  [@acrokatto](https://twitter.com/acrokatto)    
 😄  pronouns: she/her  
-📚  too hard to keep up-to-date, find me on [Goodreads](https://www.goodreads.com/user/show/125273161-katherine-kampf)  
-🎮  animal crossing (still? yes, still.)
+
