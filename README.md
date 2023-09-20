@@ -1,5 +1,5 @@
 
-<img align="left" width="240" src="https://user-images.githubusercontent.com/16325997/113520303-f411f900-9546-11eb-9261-243a40e417bc.png">
+<img align="right" width="240" src="https://github.com/acrokat/acrokat/assets/16325997/0d04e3f6-1505-49e1-9428-0e9d9307628f">
 
 ## ⚡ Welcome ⚡
 
