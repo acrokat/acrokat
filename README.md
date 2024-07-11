@@ -4,8 +4,8 @@
 ### ⚡ Welcome ⚡
 
 💻  i work on the gemini api google
-⛺  likely walking a dog in NYC  
+
+⛺  Brooklyn
+👩‍💻  [acrokat.me](acrokat.me)
 🐥  [@acrokatto](https://twitter.com/acrokatto)    
 😄  pronouns: she/her  
-👩‍💻  [acrokat.me](acrokat.me)
-
