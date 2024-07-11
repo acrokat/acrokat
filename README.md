@@ -3,8 +3,9 @@
 
 ### ⚡ Welcome ⚡
 
-💻  i do product things at [Blaze](blaze.ai).  
+💻  i work on the gemini api @google
 ⛺  likely walking a dog in NYC  
 🐥  [@acrokatto](https://twitter.com/acrokatto)    
 😄  pronouns: she/her  
+👩‍💻  acrokat.me
 
