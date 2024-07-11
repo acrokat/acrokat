@@ -3,7 +3,7 @@
 
 ### ⚡ Welcome ⚡
 
-💻  i work on the gemini api google
+💻  i work on the gemini api at google
 
 ⛺  Brooklyn
 
