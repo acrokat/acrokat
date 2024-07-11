@@ -6,6 +6,9 @@
 💻  i work on the gemini api google
 
 ⛺  Brooklyn
+
 👩‍💻  [acrokat.me](acrokat.me)
-🐥  [@acrokatto](https://twitter.com/acrokatto)    
+
+🐥  [@acrokatto](https://twitter.com/acrokatto)   
+
 😄  pronouns: she/her  
