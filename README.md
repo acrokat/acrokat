@@ -5,10 +5,9 @@
 
 💻  i work on the gemini api at google
 
-⛺  Brooklyn
+⛺  Brooklyn, NY
 
 👩‍💻  [acrokat.me](acrokat.me)
 
-🐥  [@acrokatto](https://twitter.com/acrokatto)   
+🐥  [@kat_kampf](https://twitter.com/kat_kampf)   
 
-😄  pronouns: she/her  
